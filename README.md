@@ -1,1 +1,2 @@
 # SnipersTube
+Daily Cryptocurrency Content
